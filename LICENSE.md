@@ -1,4 +1,4 @@
-
+Experience sol's rng like never before with sol's rng Script custom, the #1 Script. Includes instant win and auto-heal for unbeatable performance.
 
 
 
